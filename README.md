@@ -1,0 +1,1 @@
+https://github.com/YK911/basic-dictionary
